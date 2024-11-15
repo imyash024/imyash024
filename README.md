@@ -2,7 +2,7 @@
 - 👀 I’m interested in Technology
 - 🌱 I’m currently learning DSA and Python
 - 💞️ I’m looking to collaborate on Projects
-- 📫 How to reach me +916392278219(WhatsApp)/ yjaiswal593@gmail.com 
+- 📫 How to reach me www.linkedin.com/in/imyash024 (linkedIn)/ yjaiswal593@gmail.com 
 - 😄 Pronouns: He/Him
   
 
